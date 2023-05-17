@@ -1,1 +1,1 @@
-# Major-project-Resources
+# Major-project
